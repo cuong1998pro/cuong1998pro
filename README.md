@@ -8,5 +8,5 @@
 - ⚡ Bằng cấp, chứng chỉ: Bằng kỹ sư công nghệ thông tin, chứng chỉ MOS 2013, TOEIC
 - 😄 Ưu điểm: hiền lành, chăm chỉ hoàn thành các dự án, nghiêm túc trong công việc.
 - ⚡ Công việc mong muốn: lập trình viên, thiết kế các website, ứng dụng hữu ích phục vụ cho cuộc sống
-- 📫 Email: cuong1998pro@gmail.co
+- 📫 Email: cuong1998pro@gmail.com
 - 💬 Số điện thoại: 033.750.7167
